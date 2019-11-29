@@ -1,0 +1,1 @@
+# tembak-xl-1gb
